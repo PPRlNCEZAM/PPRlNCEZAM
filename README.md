@@ -60,9 +60,6 @@ ${\text{\color{#2ACBFA} 'oh my sweet, sweet wemmbu.' }}$<br>
 
 <p align="center">ㅤㅤ
 
-${\text{\color{#4DD1FA} "here comes the yapper." }}$<br>
-
-<p align="center">ㅤㅤ
 
 <img width="2048" height="261" alt="image" src="https://github.com/user-attachments/assets/8ddb7fe8-258e-490f-97a3-45d719ebe2d3" />
 
